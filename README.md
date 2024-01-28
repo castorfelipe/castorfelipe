@@ -1,16 +1,29 @@
-### Hi there 👋
-
-<!--
-**castorfelipe/castorfelipe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Banho Gelado
+- MGTOW
+- Comer carne crua
+- Comer virado pra parede
+- Biohack
+- Dormir no chão pra consertar a postura
+- Mewing
+- Dormir 5 horas por dia
+- Café gelado sem açúcar
+- Hipismo
+- Alho cru
+- Rivotrill
+- Jejum
+- Meditação iasd
+- Músicas para concentração, foco e inteligência
+- Teste de QI da internet
+- Ficar longe do poste de internet 4G e 5G
+- Óculos do "Turn Down for What" na foto de perfil
+- Criar galinha no quarto sem os pais saberem
+- Hackear o sono
+- 10 livros de autoajuda por mês
+- 432Hz music
+- Meditação transcendental
+- Ir no cinema sozinho
+- Coach quântico
+- Água alcalina
+- Dar 3 pulinhos toda vez que levantar da cama
+- Ebook grátis de dieta
+- Baixar materiais de estudo e nunca estudar
